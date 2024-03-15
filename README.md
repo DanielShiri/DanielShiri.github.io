@@ -1,1 +1,1 @@
-ssalkdasdkaslkdaslkdaslk
+Magnesiumia valmistetaan magnesiumkloridin suolasulatteesta elektrolyysin avulla.
